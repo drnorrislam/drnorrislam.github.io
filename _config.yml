@@ -1,4 +1,4 @@
 theme: jekyll-theme-minimal
 title: Dr. Norris Lam, O.D.
 description: Optometrist
-is_user_page: false
+github.is_user_page: false
