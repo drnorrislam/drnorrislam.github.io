@@ -4,7 +4,7 @@ As my patient, it is important you know the options available to receive ongoing
  
 These options are:
 
-* Remain at Richmond University Vision Care and/or Dr. Jarrett & Associates and transferring care to the current optometrists-on-staff at these clinics.
+* Remain at Richmond University Vision Care and/or Dr. Jarrett & Associates and transfer care to the current optometrists-on-staff at these clinics.
 
 * Transfer to another practice in the area. Please visit the College of Optometrists of Ontario (<https://www.collegeoptom.on.ca/>) and click on the tab “Find An Optometrist” for a list of current practising optometrists.
 
