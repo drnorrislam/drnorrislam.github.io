@@ -11,7 +11,7 @@ These options are:
 * Continue your optometric care with Dr. Norris Lam in Richmond Hill (Yonge / Major Mackenzie)
 
 Dr. Norris Lam’s new practice address is  
-**Dr. Susan Capitelli & Associates in Richmond Hill  
+**Richmond Hill Eye Associates 
 (Yonge / Major Mackenzie)  
 104 – 10350 Yonge St, Richmond Hill, ON L4C 5K9  
 T: (905) 884-0061**
