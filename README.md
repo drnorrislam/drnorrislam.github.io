@@ -16,5 +16,5 @@ Dr. Norris Lam’s new practice address is
 104 – 10350 Yonge St, Richmond Hill, ON L4C 5K9  
 T: (905) 884-0061**
  
-**A personal note from Dr. Norris Lam…**  
+**A personal note from Dr. Norris Lam...**  
 It has been my great pleasure and honour to have provided you with my service. It is my wish for you to continue receiving the highest quality of care. I hope that we can meet again in the future. Best wishes for a healthy future.
